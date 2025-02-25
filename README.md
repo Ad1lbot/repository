@@ -1,4 +1,4 @@
 # repository
 nazim sir er project
-<br> by Adil rashid
+<br> by Adil Rashid
 
